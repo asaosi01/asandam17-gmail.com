@@ -1,2 +1,2 @@
 # asandam17-gmail.com
-My Projects
+My Projects for Bright Coffee Shop
